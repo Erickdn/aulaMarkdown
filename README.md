@@ -2,7 +2,8 @@
 
 
 
-![Uploading image.png…]()
+![image](https://github.com/Erickdn/aulaMarkdown/assets/161900128/fbe23c68-d668-4073-8ece-369485d98ef9)
+
 
 
 
